@@ -32,27 +32,71 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A very lively portrayture, of the most reverend arch-bishops, the right reverend bs. of the Church o
+
 #####Body#####
+THE NAME of Bishop is found in the New Testament, so as the controversie is not about the name, whet
+    _ POSITION 1. That Bishops jure Divino, are Superiours to other Ministers.
 
-1. And why they set themselves to be 〈◊〉 ready 〈◊〉, is, for these •…roved reasons.
+    _ POSITION 2. They are Di•…cesan Bishop•…by divi•… right.
 
-1. First, For a Learned Ministery.
+    _ POSITION 3. They are 〈◊〉 called Lord〈◊〉.
 
-1. 2. For a Grave Ministery.
+    _ POSITION 4. 〈2 lines〉.
 
-1. 3. 〈◊◊◊〉.
+    _ POSITION 5. 〈2 lines〉.
 
-1. 4. 〈◊◊◊〉.
+    _ POSITION 6. They are Priests and may so bee rightly called. Though they be Bishops, yet they forget not their Priesthood, but will be called Priests.
 
-1. Before the Convocation.
+    _ POSITION 7. They stand for, and d•…e mai•…taine all Cerem•…nies upon very good grounds.
 
-1. In the time of their sitting.
+    _ POSITION. 8. They judge it necessary that whatsoever is amisse in the Church, should be caref•…ly and speedily reformed, and this is evident to all.
 
-1. After the Convocation is dissolved.
+      * And why they set themselves to be 〈◊〉 ready 〈◊〉, is, for these •…roved reasons.
+
+    _ POSITION 9. They may very well rule by their sole power alone.
+
+    _ POSITION. 10. Their high authority so lawfull, they all obtaine by very lawfull meanes.
+
+    _ POSITION 11. They may not forsake their so warra•…table Lordly Prelaticall standing.
+
+    _ POSITION 12. No Bishops, no King; this is undeniable.
+
+    _ POSITION 13. They stand wholly, for a learned, grave, paineful and godly ministery.
+
+      * First, For a Learned Ministery.
+
+      * 2. For a Grave Ministery.
+
+      * 3. 〈◊◊◊〉.
+
+      * 4. 〈◊◊◊〉.
+
+    _ POSITION 14. They hate to 〈◊〉 the King.
+
+    _ POSITION 15. They greatly further the peoples knowledge in divine things 〈◊◊〉 their ignorance.〈◊〉
+
+    _ POSITION 16. They have a speciall care; that God being a 〈◊〉, should have a spirituall 〈◊〉, and this 〈◊〉 according to his written word.
+
+    _ POSITION. 17. They preferre the Churches union, and what God requireth to be done, before their owne Lordly dignity, and what they themselves command.
+
+    _ POSITION. 18. They be the greatest Enemies, that the Church of Rome 〈◊◊〉 amongst us.
+
+    _ POSITION 19. They ahborre all shew of 〈◊〉.
+
+    _ POSITION. 20. They may very lawfully minister the 〈◊〉 ex officio, to any whom they dare call before them.
+
+    _ The Conclusion.
+
+      * Before the Convocation.
+
+      * In the time of their sitting.
+
+      * After the Convocation is dissolved.
 
 #####Back#####
-A very lively portrayture, of the most reverend arch-bishops, the right reverend bs. of the Church o
+
+1. Twenty irrefragable POSITIONS.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
